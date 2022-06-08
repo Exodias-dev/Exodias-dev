@@ -1,6 +1,6 @@
 I don't have the courage to make something custom right now so...
 
-- 👋 Hi, I'm @Exodias-dev (Space)
+- 👋 Hi, I'm @Space-exo
 - 👀 I'm interested in computer development and new technologies. 
 - 🌱 I'm currently learning PHP, JS , JAVA 
 - 📫 How to reach me? You can't at the moment :)
