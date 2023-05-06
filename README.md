@@ -2,7 +2,7 @@ I don't have the courage to make something custom right now so...
 
 - 👋 Hi, I'm @Space-exo
 - 👀 I'm interested in computer development and new technologies. 
-- 🌱 I'm currently learning PHP (Symphony), JS (STRAPI) , JAVA 
+- 🌱 I'm currently learning PHP (Symphony), JavaScript (discord.js, React Native) , JAVA 
 - 📫 How to reach me? You can't at the moment :)
 
 <!---
