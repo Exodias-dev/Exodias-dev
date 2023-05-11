@@ -1,1 +1,1 @@
-![](https://thumbs.gfycat.com/ForcefulEnragedGermanshepherd-size_restricted.gif)
+![](https://static-ottera.com/prod/dmr/show/banners/gto-banner2.jpg)
