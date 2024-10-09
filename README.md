@@ -1,1 +1,1 @@
-![](https://i.giphy.com/2wYYlHuEw1UcsJYgAA.webp)
+![](https://storage.googleapis.com/proudcity/elgl/uploads/2015/05/Peter-Dinklage-as-Tyrion-Lannister-raising-a-glass-on-Game-of-Thrones-GIF.gif)
