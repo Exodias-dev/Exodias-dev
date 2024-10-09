@@ -1,1 +1,1 @@
-![](https://giphy.com/gifs/SkyTV-got-wine-tyrion-2wYYlHuEw1UcsJYgAA)
+![](https://i.giphy.com/2wYYlHuEw1UcsJYgAA.webp)
